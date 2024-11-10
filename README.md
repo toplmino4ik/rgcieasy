@@ -1,2 +1,2 @@
 # Really Grass Cutting Incremental
- The game inspired by Grass Cutting Incremental (Roblox)
+ty mrredshark for this game
